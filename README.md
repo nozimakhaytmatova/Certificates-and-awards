@@ -8,5 +8,5 @@ These include:
 4. 2rd place in Olympiad of "Otorhinolaryngology" in Samara State Medical University
 5. IELTS cetificate for overal 7.0
 6. Goethe Zertifikat: B2
-7. Two reccomendation letters
+7. Two recommendation letters
 
